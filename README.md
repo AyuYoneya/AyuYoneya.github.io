@@ -1,1 +1,0 @@
-# ayuyoneya.github.io
